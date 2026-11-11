@@ -6,7 +6,7 @@ permalink: /privacidade/
 
 # Política de Privacidade do Ei Clip
 
-**Vigência:** a partir de [data da publicação].
+**Vigência:** a partir de 11 de novembro de 2026.
 
 ## 1. Quem é o responsável
 
